@@ -10,4 +10,9 @@
 
 <p align="center">누가 죽어서도 사라지지 않을 벌레 같은 존재</p>
 
+<div align="center">
+
+  <a href="">![tumblr_99b1a59e141bcd208bc9ce8c78035da1_a5a56b93_250](https://github.com/user-attachments/assets/0970b44e-7f5a-4680-b4bf-85ac03a6ac21) ![tumblr_658ba2aff9484da306e2a0a9a40473ac_5deccd42_250](https://github.com/user-attachments/assets/5ac049c6-a694-445d-9193-cc5329897975) ![tumblr_a47ee3bb8617be898657c9aa2e902727_bf958750_250](https://github.com/user-attachments/assets/532f355f-a83a-4f78-97ee-ffadc2f5f6d3)</a>
+
+
 
