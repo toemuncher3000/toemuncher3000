@@ -1,6 +1,6 @@
 <div align="center">
   
-  <a href="">![](https://komarev.com/ghpvc/?username=toemuncher3000&color=b65b56&label=♱&base=8970)</a>
+  <a href="">![](https://komarev.com/ghpvc/?username=toemuncher3000&color=2d135c&label=♱&base=8970)</a>
 
 </div>
 <p align="center"> <img width="700" height="700" src="https://github.com/user-attachments/assets/8daf2b93-57e8-4b2c-82bf-a543add0f54d" </p>
