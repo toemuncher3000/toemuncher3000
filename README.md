@@ -17,7 +17,9 @@
    [<img width="259" height="65" alt="tumblr_2c35fd65e42ac8ff247595e061d7f2a7_1bf3527e_400" src="https://github.com/user-attachments/assets/bc3943f8-a4e8-4c61-9bd3-3d0ee8fc62c4" />](https://fluffle.cc/yangilwoo) [<img width="150" height="65" alt="tumblr_c8af9c520b2388cbd121e22f7c1cbfda_516ac52c_250" src="https://github.com/user-attachments/assets/e82ecaab-a77a-4554-b72a-f795b3c8bd67" />](https://yangilwoo.atabook.org/) [<img width="259" height="65" alt="tumblr_319a2f819ac06cbf41ad05c71d546285_4ded6ca4_400" src="https://github.com/user-attachments/assets/070a5175-2247-4ca3-983f-53548e6e0af0" />](https://pronouns.cc/@jangbaekhee)
 
 ──────────────────────────────────────────────────
+<div align="center">
 
+might move to @yangilwoo
 
 
 
